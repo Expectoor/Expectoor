@@ -1,4 +1,3 @@
-### Hi there 👋
 # HEY! 👋
 
 Hi friend, my name and **Marcus Ferreira**, nice to meet you!
